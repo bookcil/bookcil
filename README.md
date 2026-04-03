@@ -4,8 +4,7 @@
 <p align="center">
 TPOT 17 DIDN'T HAPPEN IT WAS ALL JUST A DREAM THE BOOKCIL DIVORCE DIDNT HAPPEN I SWEAR. theyre so real to me I LOVE THEM
 
-
-
+</p>
 <img width="200" height="300" src="https://files.catbox.moe/x4r02m.png" />
 
 
