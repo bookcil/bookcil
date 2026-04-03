@@ -4,6 +4,6 @@
 
 TPOT 17 DIDN'T HAPPEN IT WAS ALL JUST A DREAM THE BOOKCIL DIVORCE DIDNT HAPPEN I SWEAR. theyre so real to me I LOVE THEM
 
-<img src="" alt="https://files.catbox.moe/x4r02m.png">
+<img src="https://files.catbox.moe/x4r02m.png" alt="">
 
 bookcil yuri
