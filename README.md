@@ -11,4 +11,4 @@ TPOT 17 DIDN'T HAPPEN IT WAS ALL JUST A DREAM THE BOOKCIL DIVORCE DIDNT HAPPEN I
 
 
 <p align="center"> 
-  bookcil yuri
+  yuri
